@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prernaa1
-- 👀 I’m interested in Hiring tech professionala
+- 👀 I’m interested in Hiring tech professionals
 - 🌱 I’m currently learning how to hire on github
 - 📫 How to reach me at prerna@behtarzindagi.in
 
